@@ -7,4 +7,4 @@
 ![fgg](https://github.com/Rishiv1000/Learn-Node-Mongo/assets/114014651/68d412e7-d606-40b1-a62c-11e7495c1ef7)
 ![iwreiwer](https://github.com/Rishiv1000/Learn-Node-Mongo/assets/114014651/3c621aa3-978e-4375-8f3c-73f64094ac72)
 
-![ddd](https://github.com/Rishiv1000/Learn-Node-Mongo/assets/114014651/066e2fd1-2ed3-4527-806c-f39c7056ad29)
+![4222222   2qewd](https://github.com/Rishiv1000/Learn-Node-Mongo/assets/114014651/7015dc4f-df8b-40d1-a93c-2ce0d1e34a79)
